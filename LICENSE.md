@@ -1,4 +1,4 @@
-
+Download elite escape tsunami for brainrots Scripts for escape tsunami for brainrots, the best script available, featuring no clip and auto-farm. This powerful tool ensures you
 
 
 
